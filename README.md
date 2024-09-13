@@ -19,6 +19,6 @@
 
 
 
-![MobileLab1Update-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/e466a410-9d82-4a31-891f-08a2779acb8d)
 
+![COP5930-005Lab1-ezgif com-crop](https://github.com/user-attachments/assets/3bd49c85-ef3f-42f3-b999-a83e1c91ce76)
 
