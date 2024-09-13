@@ -20,5 +20,5 @@
 
 
 
-![COP5930-005Lab1-ezgif com-crop](https://github.com/user-attachments/assets/3bd49c85-ef3f-42f3-b999-a83e1c91ce76)
+![COP5930-005Lab1-ezgif com-video-to-gif-converter (2)](https://github.com/user-attachments/assets/6a967629-9dd5-4546-8365-b3a3c7dc5880)
 
